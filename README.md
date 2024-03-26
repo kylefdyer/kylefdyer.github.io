@@ -1,4 +1,4 @@
-# Kyle Dyer's Blog
+# Blog Posts
 
 ## 2024-03-26 
 
