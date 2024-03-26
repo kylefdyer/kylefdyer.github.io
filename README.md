@@ -9,7 +9,7 @@ Pumped about this lecture tonight: [Producing a 'Usable' Past: Holocaust Distort
 
 ### Climbing Trip Coming UP: Red Rocks!
 
-Stoked (not sure I even have the temperment that allows me to use that word- ever) for some multi pitch climing in Red Rock(s?) Canyon in May.  Using [Red Rock Climbing Guides] (https://www.redrockclimbingcenter.com/climbingguides) this time. Going to be there the same time as the Tour De France... so... we'll see how that goes.
+Stoked (not sure I even have the temperment that allows me to use that word- ever) for some multi pitch climing in Red Rock(s?) Canyon in May.  Using [Red Rock Climbing Guides](https://www.redrockclimbingcenter.com/climbingguides) this time. Going to be there the same time as the Tour De France... so... we'll see how that goes.
 
 ### That Can Love you 
 
