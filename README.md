@@ -19,7 +19,7 @@ Dr. Grabowski is a historian and focuses on Poland during WWII. He's had to defe
  During the Q/A someone asked why the Polish right wing cares so much about this. Why would it focus on a restoration of this "comforting story"? 
 Dr. Grabowski answered that nationalism needs there to be a "seige". A world history where anti-polish dangers can be compared to antisemitism is a useful history to the nationalists. 
 
-Another person asked if the Polish authorities had done anything to purge or destroy materials in any of the archives that historians rely on to refute Holocaust distortion. Dr. Grabowski answered that no, there hasn't been any action to disturb the archives but that his access to them had been restricted. 
+Another person asked if anything harmful has been done to materials in the archives historians rely on for their work. Nobody has tried to disturb the archives but his access to them had been restricted. 
 
 
 
