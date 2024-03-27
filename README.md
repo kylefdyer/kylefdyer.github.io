@@ -2,6 +2,10 @@
 
 ## 2024-03-27
 
+### Next Lecture on the books
+
+April 4th 2024 7:00PM [Chuck Hagel Forum in Global Leadership Event](https://www.unomaha.edu/special-events/chuck-hagel-forum-in-global-leadership/index.php)
+
 ### Last Night's Lecture by Dr. Jan Grabowski 
 
 Update on the excellent talk by Dr. Jan Grabowski last night
@@ -12,8 +16,8 @@ Dr. Grabowski is a historian and focuses on Poland during WWII. He's had to defe
 
  > "Like other contemporary autocratic movements, Poland’s Law and Justice Party, which has been in power since 2015, promises to restore society to a lost self-understanding—to bring back an old and comforting story of Poland as “noble victim,” as Grabowski put it ..."
 
- During the Q/A someone asked why the Polish right wing cares so much about this. Why would it focus so much a restoration of this comforting story? 
-Grabowski answered that nationalism needs there to be a "seige" upon the nation. A world history where anti-polish dangers can be compared to antisemitism is a useful history to Poland’s nationalist. 
+ During the Q/A someone asked why the Polish right wing cares so much about this. Why would it focus on a restoration of this "comforting story"? 
+Dr. Grabowski answered that nationalism needs there to be a "seige". A world history where anti-polish dangers can be compared to antisemitism is a useful history to the nationalists. 
 
 Another person asked if the Polish authorities had done anything to purge or destroy materials in any of the archives that historians rely on to refute Holocaust distortion. Dr. Grabowski answered that no, there hasn't been any action to disturb the archives but that his access to them had been restricted. 
 
