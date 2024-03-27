@@ -10,7 +10,7 @@ April 4th 2024 7:00PM [Chuck Hagel Forum in Global Leadership Event](https://www
 
 Update on the excellent talk by Dr. Jan Grabowski last night
 -  I understand nationalism it bit more. 
-- And I understand more the value of the work of archivists. (The friend who invited me is an archivists here in town.)
+-  I appreciate the work of archivists more too. (The friend who invited me is an archivists here in town.)
 
 Dr. Grabowski is a historian and focuses on Poland during WWII. He's had to defend himself in Polish court against charges of defaming Edward Malinowski, mayor of a Polish village before WWII. The charges against Dr. Grabowski relate to a movement in Poland referred to as the "Polish memory wars". This 2021 New Yorker article : [The Historians Under Attack for Exploring Poland’s Role in the Holocaust](https://www.newyorker.com/news/our-columnists/the-historians-under-attack-for-exploring-polands-role-in-the-holocaust) provides a great summary.
 
