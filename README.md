@@ -37,7 +37,9 @@ My wife's friend is going and I heard about it. It's a somber topic. But I'm sti
 
 ### Climbing Trip Coming UP: Red Rocks!
 
-Stoked (not sure I even have the temperament that allows me to use that word- ever) for some multi pitch climbing in Red Rock(s?) Canyon in May.  Using [Red Rock Climbing Guides](https://www.redrockclimbingcenter.com/climbingguides) this time. Going to be there the same time as the Tour De France... so... we'll see how that goes.
+Stoked[^1] for some multi pitch climbing in Red Rock Canyon this spring.  My buddy and I are using [Red Rock Climbing Guides](https://www.redrockclimbingcenter.com/climbingguides) this time. The Tour De France has a race going on in the canyon that same weekend... so we'll see how that goes.
+
+[^1]: unsure if my temperament allows me to live up to the term
 
 ### That Can Love you 
 
