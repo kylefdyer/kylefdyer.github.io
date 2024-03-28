@@ -33,7 +33,7 @@ Earlier this month my son and I attempted a 40 mile spring time bike ride. A co-
 We didn't make it. My wife rescued us 30 miles into it. Long story. But I'd like to try it again sometime. I think it would be a good solo ride whenever I get around to making time for that.
 
 
-## 2024-03-27 Union Pacific / UNMC - Go Baby Go event
+## Union Pacific / UNMC - Go Baby Go event
 
 `2024-03-27`
 
