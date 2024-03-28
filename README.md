@@ -1,39 +1,41 @@
 # Blog Posts
 
-## 2024-03-28
-
 ## Wendell Berry Film
+
+`2024-03-28`
 
 My wife is getting her MFA in poetry at UNO. So I'm reading more about poetry than I ever have. I came across this documentary of Wendell Berry, [Look at See](https://www.lookandseefilm.com/). The best part of the film is a [reading by Wendell Berry of his poem "The Objective"](https://vimeo.com/327923084).
 
 Here's a snippet. 
 
-    The once-enslaved, the once-oppressed, 
-    were now free to sell themselves to the highest bidder 
-    and to enter the best paying prisons in pursuit of the objective, 
-    which was the destruction of all enemies,
-    which was the destruction of all obstacles, 
-    which was to clear the way to victory, 
-    which was to clear the way to promotion, 
-    to salvation, 
-    to progress, 
-    to the completed sale, 
-    to the signature on the contract, 
-    which was to clear the way to self-realization, to self-creation, 
-    from which nobody who ever wanted to go home would ever get there now, 
+    The once-enslaved, the once-oppressed,  
+    were now free to sell themselves to the highest bidder  
+    and to enter the best paying prisons in pursuit of the objective,  
+    which was the destruction of all enemies,  
+    which was the destruction of all obstacles,  
+    which was to clear the way to victory,  
+    which was to clear the way to promotion,  
+    to salvation,  
+    to progress,  
+    to the completed sale,  
+    to the signature on the contract,  
+    which was to clear the way to self-realization, to self-creation,  
+    from which nobody who ever wanted to go home would ever get there now,  
 
 Makes me tear up a bit. 
 
 ## Spring bike ride
+
+`2024-03-28`
 
 Earlier this month my son and I attempted a 40 mile spring time bike ride. A co-worker shared this route with me. It took us from [Aksarben Village in Omaha NE to Malvern IA](https://ridewithgps.com/routes/45823266) via the South Omaha and [Wabash trace](https://www.wabashtrace.org/) bike trails.
 
 We didn't make it. My wife rescued us 30 miles into it. Long story. But I'd like to try it again sometime. I think it would be a good solo ride whenever I get around to making time for that.
 
 
-## 2024-03-27
+## 2024-03-27 Union Pacific / UNMC - Go Baby Go event
 
-### Union Pacific / UNMC - Go Baby Go event
+`2024-03-27`
 
 I always wanted a one of those toy ride-on cars growing up. I would see one and think... that's toy  you can *drive*?! aw yeah! 
 
@@ -43,11 +45,15 @@ Never did get one.
  
  Now I get to help some other kid get one.
 
-### Next Lecture on the books
+## Next Lecture on the books
+
+`2024-03-27`
 
 April 4th 2024 7:00PM [Chuck Hagel Forum in Global Leadership Event](https://www.unomaha.edu/special-events/chuck-hagel-forum-in-global-leadership/index.php)
 
-### Last Night's Lecture by Dr. Jan Grabowski 
+## Last Night's Lecture by Dr. Jan Grabowski 
+
+`2024-03-27`
 
 Update on the excellent talk by Dr. Jan Grabowski last night
 -  I understand nationalism it bit more. 
@@ -64,9 +70,9 @@ Another person asked if anything harmful has been done to materials in the archi
 
 
 
-## 2024-03-26 
+## Lecture Tonight: Dr. Jan Grabowski
 
-### Lecture Tonight: Dr. Jan Grabowski
+`2024-03-26`
 
 I love lectures, tours and art openings. There's just something special about any event with a reception.
 
@@ -74,13 +80,15 @@ My wife's friend is going and I heard about it. It's a somber topic. But I'm sti
 ](https://events.unomaha.edu/event/producing_a_usable_past_holocaust_distortion_and_new_threats_to_the_memory_of_the_holocaust)
 
 
+## Climbing Trip Coming UP: Red Rocks!
 
-
-### Climbing Trip Coming UP: Red Rocks!
+`2024-03-26`
 
 Stoked (unsure if my temperament allows me to live up to the term) for some multi pitch climbing in Red Rock Canyon this spring.  My buddy and I are using [Red Rock Climbing Guides](https://www.redrockclimbingcenter.com/climbingguides) this time. The Tour De France has a race going on in the canyon that same weekend... so we'll see how that goes.
 
-### Those That Can't Love You
+## Those That Can't Love You
+
+`2024-03-26`
 
 Loved reading through, [101-things-for-my-past-self](https://www.approachwithalacrity.com/101-things-for-my-past-self/?utm_source=tldrnewsletter) this morning. Got to it via hacker news.
 
