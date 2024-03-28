@@ -2,6 +2,12 @@
 
 ## 2024-03-27
 
+### Union Pacific / UNMC - Go Baby Go event
+
+Joining some fellow employees at Union Pacific at the next Go Baby Go Event.  We'll host and partner with UNMC professionals and students to modify ride-on toy cars for young children with motor difficulties. Thankful for the opportunity to help where we can and work on something to strength the development of some fantastic kids.  
+
+https://www.unmc.edu/mmi/services/pt/gobabygo/index.html
+
 ### Next Lecture on the books
 
 April 4th 2024 7:00PM [Chuck Hagel Forum in Global Leadership Event](https://www.unomaha.edu/special-events/chuck-hagel-forum-in-global-leadership/index.php)
