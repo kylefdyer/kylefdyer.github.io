@@ -1,8 +1,35 @@
 # Blog Posts
 
+## 2024-03-28
+
+## Wendell Berry Film
+
+My wife is getting her MFA in poetry at UNO. So I'm reading more about poetry than I ever have. I came across this documentory of Wendell Berry, [Look at See](https://www.lookandseefilm.com/). The best part of the film is a [reading by Wendell Berry of his poem "The Objective"](https://vimeo.com/327923084).
+
+> The once-enslaved, the once-oppressed, 
+> were now free to sell themselves to the highest bidder 
+> and to enter the best paying prisons in pursuit of the objective, 
+> which was the destruction of all enemies,
+> which was the destruction of all obstacles, 
+> which was to clear the way to victory, 
+> which was to clear the way to promotion, 
+> to salvation, 
+> to progress, 
+> to the completed sale, 
+> to the signature on the contract, 
+> which was to clear the way to self-realization, to self-creation, 
+> from which nobody who ever wanted to go home would ever get there now, 
+
+Makes me tear up a bit. 
+
+## Spring bike ride
+
+Eariler this month my son and I attempted a 40 mile spring time bike ride. A co-worker shared this route with me: https://ridewithgps.com/routes/45823266
+
+We didn't make it and had to get rescued by my wife 30 miles into it. Long story. But I'd like to try it again sometime. I think it would be a good solo ride whenever I get around to making time for that.
+
+
 ## 2024-03-27
-
-
 
 ### Union Pacific / UNMC - Go Baby Go event
 
