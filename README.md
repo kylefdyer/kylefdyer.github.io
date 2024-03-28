@@ -26,7 +26,7 @@ Makes me tear up a bit.
 
 ## Spring bike ride
 
-Earlier this month my son and I attempted a 40 mile spring time bike ride. A co-worker shared this route with me: https://ridewithgps.com/routes/45823266
+Earlier this month my son and I attempted a 40 mile spring time bike ride. A co-worker shared this route with me. It took us from [Aksarben Village in Omaha NE to Malvern IA](https://ridewithgps.com/routes/45823266) via the South Omaha and [Wabash trace](https://www.wabashtrace.org/) bike trails.
 
 We didn't make it. My wife rescued us 30 miles into it. Long story. But I'd like to try it again sometime. I think it would be a good solo ride whenever I get around to making time for that.
 
