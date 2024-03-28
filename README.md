@@ -6,7 +6,9 @@
 
 ### Union Pacific / UNMC - Go Baby Go event
 
-I always wanted a one of those toy ride-on cars growing up. I would see one and think... that's toy  you can *drive*?! aw yeah! Never did get one. 
+I always wanted a one of those toy ride-on cars growing up. I would see one and think... that's toy  you can *drive*?! aw yeah! 
+
+Never did get one. 
 
  This week I signed up with some fellow employees at Union Pacific at the next [Go Baby Go Event](https://www.unmc.edu/mmi/services/pt/gobabygo/index.html). We'll host and partner with UNMC professionals and students to modify ride-on toy cars for young children with motor difficulties.  
  
@@ -49,7 +51,7 @@ My wife's friend is going and I heard about it. It's a somber topic. But I'm sti
 
 Stoked (unsure if my temperament allows me to live up to the term) for some multi pitch climbing in Red Rock Canyon this spring.  My buddy and I are using [Red Rock Climbing Guides](https://www.redrockclimbingcenter.com/climbingguides) this time. The Tour De France has a race going on in the canyon that same weekend... so we'll see how that goes.
 
-### That Can Love you 
+### Those That Can't Love You
 
 Loved reading through, [101-things-for-my-past-self](https://www.approachwithalacrity.com/101-things-for-my-past-self/?utm_source=tldrnewsletter) this morning. Got to it via hacker news.
 
