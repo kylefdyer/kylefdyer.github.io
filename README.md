@@ -4,8 +4,13 @@
 
 ### Union Pacific / UNMC - Go Baby Go event
 
-Joining some fellow employees at Union Pacific at the next [Go Baby Go Event](https://www.unmc.edu/mmi/services/pt/gobabygo/index.html).  We'll host and partner with UNMC professionals and students to modify ride-on toy cars for young children with motor difficulties. Thankful for the opportunity to help where we can and work on something to strengthen the development of some fantastic kids.
+I always wanted a one of those toy ride-on cars growing up. I would see one and think... that's toy  you can *drive*?! aw yeah! Never did get one. 
 
+ This week I signed up with some fellow employees at Union Pacific at the next [Go Baby Go Event](https://www.unmc.edu/mmi/services/pt/gobabygo/index.html). 
+
+ We'll host and partner with UNMC professionals and students to modify ride-on toy cars for young children with motor difficulties.  
+ 
+ Now I get to help some other kid get one.
 
 ### Next Lecture on the books
 
