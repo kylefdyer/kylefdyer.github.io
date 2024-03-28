@@ -6,23 +6,36 @@
 
 My wife is getting her MFA in poetry at UNO. So I'm reading more about poetry than I ever have. I came across this documentary of Wendell Berry, [Look at See](https://www.lookandseefilm.com/). The best part of the film is a [reading by Wendell Berry of his poem "The Objective"](https://vimeo.com/327923084).
 
-Here's a snippet. 
+Here is a snippet:
 
-    The once-enslaved, the once-oppressed,  
-    were now free to sell themselves to the highest bidder  
-    and to enter the best paying prisons in pursuit of the objective,  
-    which was the destruction of all enemies,  
-    which was the destruction of all obstacles,  
-    which was to clear the way to victory,  
-    which was to clear the way to promotion,  
-    to salvation,  
-    to progress,  
-    to the completed sale,  
-    to the signature on the contract,  
-    which was to clear the way to self-realization, to self-creation,  
-    from which nobody who ever wanted to go home would ever get there now,  
+> ...  
+> The once-enslaved, the once-oppressed,  
+> 
+> were now free to sell themselves to the highest bidder  
+> 
+> and to enter the best paying prisons in pursuit of the objective,  
+> 
+> which was the destruction of all enemies,  
+> 
+> which was the destruction of all obstacles,  
+> 
+> which was to clear the way to victory,  
+> 
+> which was to clear the way to promotion,  
+> 
+> to salvation,  
+> 
+> to progress,  
+> 
+> to the completed sale,  
+> 
+> to the signature on the contract,  
+> 
+> which was to clear the way to self-realization, to self-creation,  
+> 
+> from which nobody who ever wanted to go home would ever get there now,  
+> ...  
 
-Makes me tear up a bit. 
 
 ## Spring bike ride
 
