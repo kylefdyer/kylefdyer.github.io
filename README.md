@@ -35,7 +35,7 @@ Another person asked if anything harmful has been done to materials in the archi
 
 ## 2024-03-26 
 
-### Lecture Tonight
+### Lecture Tonight: Dr. Jan Grabowski
 
 I love lectures, tours and art openings. There's just something special about any event with a reception.
 
