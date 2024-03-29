@@ -3,6 +3,8 @@
 
 ## Music Comming Up
 
+`2024-03-29`
+
 - Apr 7 at 3:15pm [Sing Omaha & Creighton University Chamber Choir](https://calendar.boomte.ch/single/uA8wA8K0xW2A8cH9lM6cw)
 - Apr 10 at 7:00pm [Romantic trios for violin, cello and piano](https://www.omahachambermusic.org/salud-al-amor?fbclid=IwAR2UYFAD5wQCobnOdXW6d8wxE6hO1yf1rNzSltvv7TALxl58ggGJ2GQ4Wf0)
 
