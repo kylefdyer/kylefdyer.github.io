@@ -8,8 +8,7 @@
 Today is a holiday at the railroad. 
 I am running errands today and napping. 
 The local Aldis grocery store now has
- [Aldis merch](https://www.aldi.us/products/aldi-gear/)
-: fanny packs! hats! and shirts.
+ [Aldis merch](https://www.aldi.us/products/aldi-gear/): fanny packs! hats! and shirts.
 My wife was not too impressed with any of it. 
 Even after I modeled each item for her.
 
