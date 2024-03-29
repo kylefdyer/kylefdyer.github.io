@@ -1,5 +1,18 @@
 # Blog Posts
 
+
+## Good Friday - Day Off
+
+`2024-03-29`
+
+Today is a holiday at the railroad. 
+I am running errands today and napping. 
+The local Aldis grocery store now has Aldis merch: 
+fanny packs! hats! and shirts.  
+My wife was not too impressed with any of it. 
+Even after I modeled each item for her.
+
+
 ## Wendell Berry Film
 
 `2024-03-28`
