@@ -6,7 +6,7 @@
 `2024-03-29`
 
 Today is a holiday at the railroad. 
-I am running errands today and napping. 
+I am running errands, eating out and napping. 
 The local Aldis grocery store now has
  [Aldis merch](https://www.aldi.us/products/aldi-gear/): fanny packs! hats! and shirts.
 My wife was not too impressed with any of it. 
