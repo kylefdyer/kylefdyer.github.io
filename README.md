@@ -1,6 +1,12 @@
 # Blog Posts
 
 
+## Music Comming Up
+
+- Apr 7 at 3:15pm 
+[Sing Omaha & Creighton University Chamber Choir]
+(https://calendar.boomte.ch/single/uA8wA8K0xW2A8cH9lM6cw)
+
 ## Good Friday - Day Off
 
 `2024-03-29`
