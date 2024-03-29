@@ -5,6 +5,12 @@
 
 `2024-03-29`
 
+Coral music has been in heavy rotation for me lately. Apple's _The Story of Classical_ (a nine-part companion guide to classical music) opened me up to these early coral sounds.
+Here is an incredible example: 
+[Josquin des Prez / Mille regretz](https://m.youtube.com/watch?v=dkfVzCZ68_Q)
+
+I'm swooper excited to attent a couple of live classical music performances next week:
+
 - Apr 7 at 3:15pm [Sing Omaha & Creighton University Chamber Choir](https://calendar.boomte.ch/single/uA8wA8K0xW2A8cH9lM6cw)
 - Apr 10 at 7:00pm [Romantic trios for violin, cello and piano](https://www.omahachambermusic.org/salud-al-amor?fbclid=IwAR2UYFAD5wQCobnOdXW6d8wxE6hO1yf1rNzSltvv7TALxl58ggGJ2GQ4Wf0)
 
