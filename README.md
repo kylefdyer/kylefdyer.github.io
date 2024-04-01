@@ -4,7 +4,9 @@
 
 `2024-04-01`
 
-My family and I recently started attending an Anglican service regularly. This Sunday was Easter. The sermon focused on an account of the resurrection of Jesus Christ from [Mark chapter 16 verses 5-8](https://www.biblegateway.com/passage/?search=Mark+16%3A5-8&version=ESV). Reading it again just now, I notice the resurrection _itself_ isn't described. Rather, we are placed at the scene after the fact, overhearing the good news as it is told for the first time to the most loyal of Jesus' friends. Good News our paster beautifully summarized:
+My family and I recently started attending an [Anglican service](https://c4so.org/anglicanism/) regularly. 
+
+This Sunday was Easter. The sermon focused on an account of the resurrection of Jesus Christ from [Mark chapter 16 verses 5-8](https://www.biblegateway.com/passage/?search=Mark+16%3A5-8&version=ESV). Reading it again just now, I notice the resurrection _itself_ isn't described. Rather, we are placed at the scene after the fact, overhearing the good news as it is told for the first time to the most loyal of Jesus' friends. Good News our pastor beautifully summarized:
 
 > Don't be afraid. He's just ahead of you, on the way. You will see Him in a little while.
 
