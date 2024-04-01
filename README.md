@@ -1,5 +1,11 @@
 # Blog Posts
 
+## Luigi, Inc. @ Mr Toads Pub
+
+`2024-04-01`
+
+I morn the end of the weekend on Sunday evenings. Last night I was feeling down and decided to get out the house and read a little. I ended up at Mr. Toads and discovered it was Jazz night. Folks- [Sunday night Jazz has been going on at Mr Toads every week for my entire life](https://www.mrtoadspub.com/music/). I had no idea.
+
 ## Easter Service 2024
 
 `2024-04-01`
