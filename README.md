@@ -1,5 +1,13 @@
 # Blog Posts
 
+## Rich Hickey
+
+`2024-04-16`
+
+I'm a "seasoned" software developer and I still love coding. One thing you learn to hate as a programmer is time. I don't mean time zones, though they are enduring fountain of bugs. I'm talking about "state" and the complexly hidden in every variable that changes over time. I'll never forget watching this talk by Rich Hickey: [Are We There Yet](https://www.youtube.com/watch?v=ScEPu1cs4l0&t=1807s). It's pretty old too but he does a great job articulating how good software systems (and programmers) need to reason about "things" that "change" over time.
+
+When you write a calculator you get to ignore time and change. Given the same inputs the results are always the same: 10 plus 10 always equals 100 (in binary). But most software systems are useful _because_ their results change over time (even when offered the same inputs). If my weather app always gave me the same result for "what's the high for today" I wouldn't like it. Systems that model the world become _part_ of the  world.  The trick is to unlearn what you have learned. There is no such thing as an entity-changing-over-time in the real world. Our system designs need to respect this. No man crosses the same river. Look now, there is water, and look again later... there is other water. "River" is a psychological construct _we_ super impose on a sequence. A river is a useful thing in conversations. But be wary of putting them in your code.
+
 ## Luigi, Inc. @ Mr Toads Pub
 
 `2024-04-01`
