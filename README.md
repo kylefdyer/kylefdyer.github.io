@@ -1,5 +1,16 @@
 # Blog Posts
 
+## Bugers
+
+`2024-04-17`
+
+My daughter loves a good burger. Her favorite is [Au Cheval in Chicago IL](https://auchevaldiner.com/chicago/). I just found out about a new (to me) place in Omaha called Charred. It's on my list to checkout with her next time we go out. 
+
+Current list of her favorites:
+- Au Cheval
+- Cheesbugers (in Omaha)
+- Block 16
+
 ## Rich Hickey
 
 `2024-04-16`
