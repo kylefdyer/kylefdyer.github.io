@@ -19,8 +19,8 @@ My daughter loves a good burger. Her favorite is [Au Cheval in Chicago IL](https
 
 Current list of her favorites:
 - [Au Cheval in Chicago IL](https://auchevaldiner.com/chicago/)
-- [Cheeseburgers in Omaha NE](https://www.ineedcheeseburgers.com/)
 - [Primrose in Corning IA](https://primrose-corning.edan.io/)
+- [Cheeseburgers in Omaha NE](https://www.ineedcheeseburgers.com/)
 
 My favorite is [Block 16 in Omaha NE](https://block16omaha.com/). 
 
