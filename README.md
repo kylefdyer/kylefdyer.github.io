@@ -1,6 +1,6 @@
 # Blog Posts
 
-## Weekend Suprise: Free Omaha Symphony Ticket from a Co-worker
+## Weekend Surprise: Free Omaha Symphony Ticket from a Co-worker
 
 `2024-04-21`
 
