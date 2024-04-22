@@ -6,7 +6,7 @@
 
 I work at a big company with many people. The longer I work at this historic, meaningful company I find the din of corporate prattle less interesting than my personal interactions with fellow Railroaders. There are thoughtful, well intentioned, real people behind all the work going on here. 
 
-Recently a co-worker offered me a pair of tickets to the ["Wilkins Returns" performance of the Omaha Symphony](https://www.omahasymphony.org/concerts/wilkins-returns). He couldn't use them and he though I'd be interested. I really enjoyed the [Concerto in D minor for Violin and Orchestra, Op. 47 by Sibelius](https://dpb-web.instantencore.com/program/45246/wilkins-returns/page/131678/jean-sibelius-?cid=5115955).  The soloist, Alexi Kenney, had a real stage presence swaying about with the dynamics of the piece. We clapped him back for an encore and he offered us some Bach.
+Recently a co-worker offered me a pair tickets he couldn't use for the symphony Friday night. It was the ["Wilkins Returns" performance of the Omaha Symphony](https://www.omahasymphony.org/concerts/wilkins-returns). I really enjoyed the [Concerto in D minor for Violin and Orchestra, Op. 47 by Sibelius](https://dpb-web.instantencore.com/program/45246/wilkins-returns/page/131678/jean-sibelius-?cid=5115955).  The violin soloist, Alexi Kenney, had a real stage presence swaying about with the dynamics of the piece. We clapped him back for an encore and he offered us some Bach.
 
 So thankful to you, Mark, for your system analysis, the sensitive way you champion the end-user, and the tickets.
 
